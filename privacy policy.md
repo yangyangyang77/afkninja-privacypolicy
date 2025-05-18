@@ -1,6 +1,6 @@
 # Privacy Policy - AFK Ninja
 
-Last Updated: [Current Date]
+Last Updated: [2025.5.18]
 
 ## Introduction
 
